@@ -1,1 +1,1 @@
-Finished, use how you want it
+Finished, use it how you want it
